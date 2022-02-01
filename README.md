@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NotNatural
-- 👀 I’m interested in yo mama :sunglasses: + L + Ratio
+- 👀 I’m interested in yo mama :sunglasses: 
 - 🌱 I’m currently learning py, node.js, html, Java
 - 💞️ I’m looking to collaborate on yo mama 
 - 📫 How to reach me NotNatural#5499
