@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NotNatural
-- 📫 NotNatural#5499 on discord
+- 📫 NotNatural on discord
 
 <!---
 NotNatural/NotNatural is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
