@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NotNatural
+- 👋 Hi, I’m @NotNatural, a student and developer, speedrunner and wikian
 - 📫 NotNatural on discord
 
 <!---
